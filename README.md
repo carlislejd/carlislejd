@@ -1,4 +1,4 @@
-### Hi there 👋
+### We ride at dawn 
 
 <!--
 **carlislejd/carlislejd** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
